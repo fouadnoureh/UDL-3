@@ -1,6 +1,7 @@
 # Downloaded list :
 
 - [XizqXWos8g](./XizqXWos8g)
+- [o6sszzdm2itk](./o6sszzdm2itk)
 
 ---
 
